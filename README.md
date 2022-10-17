@@ -17,7 +17,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/harsh-bauddha-26b0a5238/](https://www.linkedin.com/in/harsh-bauddha-26b0a5238/)
 
-- ⚡ Fun fact **I love to do maths problems and play games , singing songs and also love to do shyari .**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
