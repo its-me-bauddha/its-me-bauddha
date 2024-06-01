@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **harshbauddha563@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/harsh-bauddha-26b0a5238/](https://www.linkedin.com/in/harsh-bauddha-26b0a5238/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/harsh-bauddha-26b0a5238/](https://www.linkedin.com/in/harsh-bauddha/)
 
 
 
